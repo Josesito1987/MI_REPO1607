@@ -1,0 +1,1 @@
+#No pasaron mas de 20 años entre una explosio y la otrA?
